@@ -19,7 +19,11 @@
 - Innovative tools for better decision-making
 
 📫 How to reach me:
-- Email: trizahchepkirui07@gmail.com 
+- Email: trizahchepkirui07@gmail.com
+
+  Check out my projects:
+  -https://www.loom.com/share/01a6ad3d2f2540f586da3a3a8d9dd9e1?sid=49d6f148-1d40-4616-a454-74fee09ecf2f
+  -https://1drv.ms/p/c/53e4346ff114708c/ETX1i_bEbzlFt3FGk87QSdABNq2-WfiWa9-R4o82lkF2sA?e=fhiOdH
 
 
 ⚡ Fun fact:
