@@ -1,6 +1,6 @@
 # Hi there, I'm Trizah!
 
-👋 Welcome to my GitHub profile!
+ Welcome to my GitHub profile!
 
 👀 I’m interested in:
 - Technology for social impact
